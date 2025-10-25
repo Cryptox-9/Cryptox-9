@@ -2,7 +2,7 @@
 
 💰 Investor
 
-🎨 Web designer / Graphic designer
+🎨 Graphic designer
 
 🎹 Music producer
 
